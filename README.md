@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @makssemenuk
+- 👀 I’m interested in telegram bot
+- 🌱 I’m currently learning self-taught
+- 📫 How to reach me telegram:@maks_semenuk12
